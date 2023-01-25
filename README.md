@@ -5,3 +5,4 @@ Delilah is a self-starter, and she created an app to get young girls excited abo
 Since Delilah sourced most of her user-testers through her network, their backgrounds are all very similar to hers. Delilah wants her app to be more inclusive, but she doesn’t know how to find and approach more potential user-testers from underrepresented minorities. What can be some first steps?
 My response to the prompt is below: 
 
+Start Including people of different backgrounds and communities into the app making process in addition to the pictures. This would allow for more diversity down the line to assure this does not happen again. This will also open up the attraction for the app to more users. 
